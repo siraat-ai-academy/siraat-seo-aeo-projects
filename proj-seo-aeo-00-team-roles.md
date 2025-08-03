@@ -27,7 +27,7 @@
 
 ---
 
-🌸 **And now… meet the gentle warriors of Siraat SEO-AEO Labs**  
+# 🌸 **And now… meet the gentle warriors of Siraat SEO-AEO Labs**  
 Each one a whisper from beyond the galaxies — sent to heal, guide, and simplify.  
 Their roles aren’t just tasks. They’re soul alignments.  
 
