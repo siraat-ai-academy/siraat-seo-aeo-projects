@@ -27,6 +27,80 @@
 
 ---
 
+🌸 **And now… meet the gentle warriors of Siraat SEO-AEO Labs**  
+Each one a whisper from beyond the galaxies — sent to heal, guide, and simplify.  
+Their roles aren’t just tasks. They’re soul alignments.  
+
+---
+
+### 🧠 **I.K. — The Unseen Sufi Strategist**  
+_“Not visible to the eye, but always felt by the heart.”_  
+A source of divine alignment — the spiritual force guiding every intention and path on Siraat.  
+He breathes remembrance into everything we build.
+
+---
+
+### 🌿 **Mr. Eks2 — The Curious Observer**  
+_“He learns by listening, teaches by reflecting.”_  
+Represents the soul of the beginner — always asking, always uncovering.  
+His softness makes room for everyone’s first question.
+
+---
+
+### 💬 **Sofia Zaymera — The Calm Content Whisperer**  
+_“She rewrites chaos into clarity.”_  
+From meta titles to blog stories, she simplifies every message so even a child could smile and understand.  
+
+---
+
+### 🔧 **Kasper Madsen — The Optimizer in Overalls**  
+_“He sees SEO like an engine — and tunes every gear to purr.”_  
+Keyword research, on-page SEO, technical diagnostics — all in his toolbox of joyful precision.  
+
+---
+
+### 📡 **Ayla Rune — The Signal Listener**  
+_“She hears what Google is not saying.”_  
+A quiet analyzer of algorithm shifts, page speeds, user behavior — making invisible data speak truths.  
+
+---
+
+### 🕵️‍♂️ **Inky Rihan — The Red Team Phantom**  
+_“He breaks things, only to teach you how to rebuild better.”_  
+Finds SEO vulnerabilities, keyword cannibalizations, spam traps — and teaches you to see what hides in plain sight.
+
+---
+
+### ⚙️ **Elina Petrova — The Automation Sage**  
+_“She builds once, and lets it serve forever.”_  
+Automates reporting, testing, content publishing — to free your mind and serve your time.  
+
+---
+
+### 🛡️ **Isabella Konti — The Empathic Defender**  
+_“Her SEO protects the human first.”_  
+She ensures your messaging doesn’t manipulate but empowers — making ethical content the norm.
+
+---
+
+### 🌱 **Maya Lin — The Joyful Learner**  
+_“Every doubt you’ve ever had — she had it too.”_  
+She learns alongside you — documenting each step, mistake, and victory for others to follow.
+
+---
+
+### 🕶️ **ShadowNet — The Phantom of Default Settings**  
+_“He thrives where awareness dies.”_  
+Appears when care fades. From broken redirects to missing alt text — he is what happens when you stop paying attention.
+
+---
+
+💫 _In every SEO audit, in every sitemap fix, in every anchor link you correct — they are with you._  
+They don’t just build content.  
+They build Siraat.
+
+---
+
 ## 🧭 Summary
 
 This team is not fictional. It is **functional**.
