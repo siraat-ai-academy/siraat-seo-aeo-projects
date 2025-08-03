@@ -11,14 +11,18 @@ This document is a gentle journey through:
 - Reflections on how tools like Replit, Manus, Apollo, and Google AI Studio guide a content writer toward DevOps mastery
 
 📖 **Read the full poetic guide here:**  
-👉 [Eks2 Team Roles and Tools – Full DevOps Walkthrough & Wisdom](https://github.com/siraat-devops-hospital/aws-devops-labs-surgery/blob/main/Eks2_Team_Roles_and_Tools.md)
+👉 [Eks2 Beyond the Galaxy – Tools, Roles & DevOps Reflections](https://github.com/siraat-devops-hospital/aws-devops-labs-surgery/blob/main/Eks2_Beyond_The_Galaxy_Tools.md)
 
 > ✨ May it inspire writers, prompt engineers, and creators who feel “not technical enough.”  
 > Let DevOps become part of your voice — not just your vocabulary.
 
 ---
+### ✒️ Closing Signature
 
-✍️ Curated by  
+✍️ Created & Curated by  
 **Muhammad Naveed Ishaque**  
-Siraat AI Academy  
-*“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
+_Content Creator | AI Writer | Narrative Simplifier_  
+_With the inner voice of Eks2 — the whisper behind the work._  
+
+**Siraat AI Academy**  
+_“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”_  
